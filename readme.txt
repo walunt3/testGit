@@ -1,2 +1,2 @@
-Djn is a boy¡£
-He likes shoes¡£
+Djn is a handsome boy.
+He likes Jordan shoes.
