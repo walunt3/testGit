@@ -1,4 +1,3 @@
 Djn is a handsome boy.
-He likes Jordan shoes.He loves Wangxi!
 hahah~
 creating a new branch is quick.
